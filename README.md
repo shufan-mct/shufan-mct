@@ -5,4 +5,4 @@
 * 🌱 I've been learning coding and machine learning algorithms in the recent years. 
 * 🙋 I’m looking for a full-time machine learning engineer position in summer 2022.
 * 🏹 How to reach me: sflupp2@gmail.com .
-* 🌊 I love swimming, kayaking, paddleboarding... anything in water.
+* 🌊 I love swimming, kayaking, paddleboarding... any sports in water.
